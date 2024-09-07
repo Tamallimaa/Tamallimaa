@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tamallimaa
 - 👀 I’m interested in Allah & Muhammad (S.A.W)
-- 🌱 I’m Princess
+- 🌱 1122
 - 💞️ www.youtube.com/@tamallimaa
 - 📫 tiktok @tamallimaa6
 - 😄 PUBGM 5240899156
