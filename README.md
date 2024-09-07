@@ -9,6 +9,5 @@
   
 <!---
 
-Tamallimaa/Tamallimaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a at your changes.
+Tamallimaa/Tamallimaa is a ✨ special ✨ repository because Tamallimaa is a special priority 
 --->
